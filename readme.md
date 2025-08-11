@@ -1,3 +1,3 @@
 repositorio
 
-Lega
+Legal
